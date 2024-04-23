@@ -68,6 +68,8 @@
 
 ## 📫 How to Reach Me
 
-- Email: [your-email@example.com](mailto:runchangzhou2022@gmail.com)
+- Email: [runchangzhou2022@gmail.com](mailto:runchangzhou2022@gmail.com)
 - LinkedIn: [in/runchang-zhou/](https://www.linkedin.com/in/runchang-zhou/)
+
+![Banner](https://media.licdn.com/dms/image/D4E16AQHs2pdOhodycA/profile-displaybackgroundimage-shrink_350_1400/0/1685913524075?e=1719446400&v=beta&t=taM7oXXTgIl2KIcUQNWJUqsDLb5JtWy5n28UZggarTQ)
 
