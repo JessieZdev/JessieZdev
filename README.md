@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **Data Pipeline: Streaming Process**
 - 👯 I’m looking to collaborate on **Any Interesting Project - Currently keep my eyes on these!**
-- 🤔 I’m looking for help with *Career Path Advice**
+- 🤔 I’m looking for help with **Career Path Advice**
 - 💬 Ask me about **Anything you want, lol, love to meat all kinds of people!**
 - 📫 How to reach me: **runchangzhou2022@gmail.com**
 - 😄 Pronouns: **she/her/hers**
